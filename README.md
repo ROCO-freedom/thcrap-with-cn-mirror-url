@@ -1,0 +1,1 @@
+# thcrap-with-cn-mirror-url
